@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-🚀 Welcome to the world of Adrian Xavier Boek! 🌟
+🚀 Welcome to my world! 🌟
 
 🔭 Currently, my focus is on crafting the ultimate experience with my Mafia Manager project. Trust me, it's going to be epic!
 
